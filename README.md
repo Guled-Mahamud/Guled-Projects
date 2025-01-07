@@ -3,3 +3,6 @@ To become a DevOps engineer, learn programming basics, Linux, and cloud platform
 Don't stop and keep working hard
 Never give up !!
 
+Work Hard people
+
+You will be successful
